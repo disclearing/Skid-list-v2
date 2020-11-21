@@ -19,3 +19,7 @@
 8. BCCM - Also know as Nathen/Hobs owner of LuxorMC and is also a "swatter doxer and ddoser", also claims to own legal rights to ParaPvP. The best part is that he "used to own ViperMC".
 
 9. DeclynXD - Doxer swatter skidder all in one basically a wanna be gang member.
+
+10. Kbl - Braindead hispanic piece of shit that barely understands Java and claims to be a developer, yet, he has the nuts to even skid ForceOP's from other Dogshit HCF cores. [Obfuscated dogshit forceop -> https://cdn.discordapp.com/attachments/720338483356500029/779531323668824064/unknown.png] And also claims that it isn't a ForceOP, that it is for cancelling OP.
+
+11. Lean - Another braindead hispanic retard, generally known for skidding, just show him a do while on Java and he'll have a couple seizures, complete retard.
