@@ -23,3 +23,5 @@
 10. Kbl - Braindead hispanic piece of shit that barely understands Java and claims to be a developer, yet, he has the nuts to even skid ForceOP's from other Dogshit HCF cores. [Obfuscated dogshit forceop -> https://cdn.discordapp.com/attachments/720338483356500029/779531323668824064/unknown.png] And also claims that it isn't a ForceOP, that it is for cancelling OP.
 
 11. Lean - Another braindead hispanic retard, generally known for skidding, just show him a do while on Java and he'll have a couple seizures, complete retard.
+
+12. MerttRespect/Cherrydev - this guy is a fat dirty skid who can not code and always skids examples will be provided.https://imgur.com/a/rdV6p6O https://drive.google.com/file/d/1AeShKt3hCkK9gjumCia_J1pxLVaiGvp7/view?usp=sharing if I have to end this kid anymore I will :)
