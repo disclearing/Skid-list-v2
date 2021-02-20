@@ -25,3 +25,5 @@
 11. Lean - Another braindead hispanic retard, generally known for skidding, just show him a do while on Java and he'll have a couple seizures, complete retard.
 
 12. MerttRespect/Cherrydev - this guy is a fat dirty skid who can not code and always skids examples will be provided.https://imgur.com/a/rdV6p6O https://drive.google.com/file/d/1AeShKt3hCkK9gjumCia_J1pxLVaiGvp7/view?usp=sharing if I have to end this kid anymore I will :)
+
+13. cronu his uuid 921aba8d-b7de-4573-9402-b498a1cd0997 - This kid claims to have made a fully custom prison core within his first week of being a dev thats some kappa mans a huge skid couldnt answer basic java questions https://cdn.discordapp.com/attachments/798953685949349930/812748202931519508/OPPrisonCore.zip gg bro your fully custom prison core
